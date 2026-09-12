@@ -4,3 +4,4 @@ Jogue e ganhe recompensas reais no Pinjoy! Entre agora para resgatar seu bônus!
 #gdps-hub-download
 geometry o email
 wendrell o e-mail www.gdpshub.com/download/
+www.geode-sdk.org/mods/lblazen.gdps_hub
