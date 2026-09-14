@@ -1,10 +1,4 @@
-# gdps-hub
-👇
-Jogue e ganhe recompensas reais no Pinjoy! Entre agora para resgatar seu bônus! https://web.pinjoy.site/pt-BR/invite/land?user_id=300372364&country_code=br
-#gdps-hub-download
-geometry o email
-wendrell o e-mail www.gdpshub.com/download/
-www.geode-sdk.org/mods/lblazen.gdps_hub
-___________________________________________| robux ✅️ roblox ❌️ minecraft ✅️ wendrel ___________________________________________| minecraft ✅️ minecraft para baixar ❌️   ___________________________________________| gdps Hub ✅️ gdps Hub robux ✅️ gdps ❌️   ___________________________________________| geometry dash ⚠️ geometry dash baixar ✅️ ___________________________________________
-geometrydash671 ----》www.github.com você níveis https://github.com/wendrelldceothestop-cmd/App-by-gdps-Hub-baixar/releases/tag/Pl
-como sempre o email
+https://camo.githubusercontent.com/8ad8d6d362051836e2eb1537ce1a575722d5f5e94a344693b18de82a8ada1f48/68747470733a2f2f676470736875622e636f6d2f6173736574732f6272616e642d6173736574732f62616e6e65722d332e706e67 followers  https://gdpshub.com  @gdpshub  https://discord.gg/qmMVXpWPdP  gdpshub@gmail.com
+The GDPS Hub Team
+This is the GDPS Hub Team Github organization. Here you may find some source code published from our website or client.GDPS Hub
+Welcome to the GDPS Hub Team GitHub organization, here you can find some open source code from our products, that we've been developing for the past 3 years. We may not publish everything, but for sure there's something here to sneak 👀.
